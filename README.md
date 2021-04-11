@@ -1,0 +1,1 @@
+# mosaic-cup-competition-mvrc
